@@ -1,4 +1,4 @@
-### Hi there 👋
+### Welcome to Gracepoint A Texas Public Benefit Corporation, focused on delivering sustainable  financial-lifestyle strategies to our community members👋
 
 <!--
 **gracepointpbc/gracepointpbc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
